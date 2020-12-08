@@ -4,4 +4,7 @@
 	
 </div>
 
-## [Resume](https://www.notion.so/Sunny-1349e293c9f74de092dce9ee359bd77c)
+### 권태양(Sunny):sunny:
+> - 선한 영향력을 주는 개발자
+
+#### [자세히보기](https://www.notion.so/Sunny-1349e293c9f74de092dce9ee359bd77c)
