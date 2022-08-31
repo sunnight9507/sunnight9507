@@ -2,7 +2,7 @@
 
 ## 권태양(Sunny):sunny:
 > - 빛이 있는 곳에 가지말고 스스로 빛을 내는 존재가 되자
-### [자세히보기](https://www.notion.so/Sunny-1349e293c9f74de092dce9ee359bd77c)
+### [자세히보기](https://seasoned-ostrich-c6a.notion.site/Kwon-TaeYang-1349e293c9f74de092dce9ee359bd77c)
 
 <div align=right>
 	
